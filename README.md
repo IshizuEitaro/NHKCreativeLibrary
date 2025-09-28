@@ -607,3 +607,105 @@ https://archive.md/Er5St
 https://archive.md/5R1eR
 
 https://archive.md/wx0EU
+
+# 放送年代
+
+## 2000年代
+
+### 2008年
+
+https://archive.md/z9fN9
+
+https://archive.md/ZMAdv
+
+https://archive.md/0Pfec
+
+https://archive.md/1RUeT
+
+https://archive.md/Q8y3B
+
+https://archive.md/gLTsX
+
+https://archive.md/RzLVA
+
+### 2009年
+
+https://archive.md/Ebp3i
+
+https://archive.md/4Rptl
+
+https://archive.md/uuJSH
+
+https://archive.md/T74h3
+
+https://archive.md/VaJiK
+
+## 2010年代
+
+### 2010年
+
+https://archive.md/vGwi5
+
+https://archive.md/jUv66
+
+### 2011年
+
+https://archive.md/tBchH
+
+https://archive.md/FnctG
+
+### 2012年
+
+https://archive.md/1SxQX
+
+https://archive.md/rvSgj
+
+### 2013年
+
+https://archive.md/nledx
+
+### 2014年
+
+https://archive.md/VCzMN
+
+https://archive.md/vZfnr
+
+### 2015年
+
+https://archive.md/DABwE
+
+https://archive.md/3dVV0
+
+### 2016年
+
+https://archive.md/AsCuz
+
+### 2017年
+
+https://archive.md/lyDgv
+
+https://archive.md/9MC4w
+
+### 2018年
+
+https://archive.md/bAZuE
+
+https://archive.md/psjH1
+
+### 2019年
+
+https://archive.md/USDQs
+
+## 2020年代
+
+### 2020年
+
+https://archive.md/tI2tg
+
+### 2021年
+
+https://archive.md/119vC
+
+### 2022年
+
+https://archive.md/37tw0
