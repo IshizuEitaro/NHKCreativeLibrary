@@ -336,11 +336,19 @@ https://archive.md/zoPCQ
 # 音素材
 ## 音楽
 
+https://archive.md/G8V6t
+
 ## 効果音
+
+https://archive.md/BrAkx
 
 ## 環境音
 
+https://archive.md/SpVXu
+
 ## 音声
+
+https://archive.md/VxUZz
 
 # 地域
 
