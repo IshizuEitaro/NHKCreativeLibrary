@@ -1,4 +1,4 @@
-[Movies](https://archive.org/details/@ishizue/lists/1/nhk-creative-library-movies)
+ファイルを一括ダウンロードしたい場合は[Movies](https://archive.org/details/@ishizue/lists/1/nhk-creative-library-movies)と[Audio](https://archive.org/details/@ishizue/lists/2/nhk-creative-library-audio)を参照。
 
 # ジャンル
 ## 生きもの
